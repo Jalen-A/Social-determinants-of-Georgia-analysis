@@ -1,4 +1,4 @@
-<h1>Social Determinants in Georgia analysis</h1>
+<h1>Social Determinants In Georgia Analysis</h1>
 
  ### [Powerpoint](https://1drv.ms/p/s!AndYgBUQ-7sBq1egEhsnOif8-SlV?e=83YTkC)
  ### 
