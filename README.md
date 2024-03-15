@@ -1,7 +1,7 @@
 <h1>Social Determinants in Georgia analysis</h1>
 
- ### [Presentation](https://1drv.ms/p/s!AndYgBUQ-7sBq1egEhsnOif8-SlV?e=83YTkC)
- ### [YT]("YT LINK")
+ ### [Powerpoint](https://1drv.ms/p/s!AndYgBUQ-7sBq1egEhsnOif8-SlV?e=83YTkC)
+ ### 
 
 
 
